@@ -1,4 +1,4 @@
-# 
+# Avançado bybit trading bot complementos para Mac OS | Oficial bybit trading bot complementos para PC Windows. Com análise de dados históricos e seguimento de tendência — otimizado para máximo desempenho em cada plataforma.
 
 
 
